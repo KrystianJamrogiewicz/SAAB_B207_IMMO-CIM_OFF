@@ -1,6 +1,6 @@
 # SAAB_B207_IMMO-CIM_OFF
 
-Link to video: https://www.youtube.com/watch?v=5XJAlXcGxRc&t=24s
+Link to video: https://youtu.be/5XJAlXcGxRc?si=tpDLrVp_Tp_QpqB6
 
 
 You will need: 
