@@ -1,6 +1,9 @@
 # SAAB_B207_IMMO-CIM_OFF
 
-Link to video: https://youtu.be/5XJAlXcGxRc?si=tpDLrVp_Tp_QpqB6
+
+Short video: https://www.linkedin.com/posts/krystian-jamrogiewicz-8b3770280_swap-immoabroff-saab-activity-7322344630786682880--STa?utm_source=share&utm_medium=member_desktop&rcm=ACoAAER00AcB6L5q64HzB6NpWSs6syZ06z8OhkU
+
+Link to full video: https://youtu.be/5XJAlXcGxRc?si=tpDLrVp_Tp_QpqB6
 
 
 You will need: 
